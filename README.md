@@ -1,1 +1,1 @@
-# Pm-kisan-yojana-updates-
+[PM Kisan Yojana updates](https://www.yojanaforyou.in/) is the ultimate welfare scheme for the needful farmers of India. Prime Minister Narendra Modi on 24 February 2019. We are providing all information and the latest updates for the farmers, who want to get benefits from the PM Kisan Yojana. We have covered all information regarding it, so after going through it from yojanaforyou.in you will get all the necessary information and also the ultimate solutions of that scheme.
